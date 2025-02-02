@@ -1,2 +1,4 @@
-# README.md
-personal repository
+# ☀
+@Gunes-Uguz
+PhD Student @ Brown University 
+Economics
